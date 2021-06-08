@@ -1,11 +1,11 @@
 ### Resume:
-
+https://drive.google.com/file/d/1RJ83GcvcfjlJrmycrqD1OVr86vUJ742N/view?usp=sharing
 ----------------------------------------------------------------
 ### LinkedIn:
-
+https://www.linkedin.com/in/leonard-tolentino-b34398188/
 ----------------------------------------------------------------
 ### Recent Project:
-
+https://teamlamp.itch.io/vulpecula
 ----------------------------------------------------------------
 
 <!--
