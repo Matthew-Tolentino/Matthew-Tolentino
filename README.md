@@ -1,4 +1,12 @@
-### Hi there 👋
+### Resume:
+
+----------------------------------------------------------------
+### LinkedIn:
+
+----------------------------------------------------------------
+### Recent Project:
+
+----------------------------------------------------------------
 
 <!--
 **Matthew-Tolentino/Matthew-Tolentino** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
