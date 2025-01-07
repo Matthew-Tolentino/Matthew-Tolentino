@@ -1,5 +1,5 @@
 ### Resume:
-https://drive.google.com/file/d/1RJ83GcvcfjlJrmycrqD1OVr86vUJ742N/view?usp=sharing
+[https://drive.google.com/file/d/1RJ83GcvcfjlJrmycrqD1OVr86vUJ742N/view?usp=sharing](https://drive.google.com/file/d/1QTK4_CyqBeRpGCKgRl1JGaokOIQfBVTQ/view?usp=sharing)
 ----------------------------------------------------------------
 ### LinkedIn:
 https://www.linkedin.com/in/leonard-tolentino-b34398188/
